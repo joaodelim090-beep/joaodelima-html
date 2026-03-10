@@ -25,3 +25,5 @@ https://github.com/alexandresanlim/Badges4-README.md-Profile#-education-
 [![](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/j_lima09?igsh=MWtnZnAzdGNsMW0ydw==) 
 
 
+
+https://wa.me/qr/PHGLFF5BJ23MA1
